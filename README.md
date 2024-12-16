@@ -15,3 +15,14 @@ be someone' body guard doing this one someone else etc.
 pushing agenda 
 
 another one.
+
+# patient No.3
+
+self-indulging
+
+self-confession
+helping other patient
+
+they love to talk about other 24h
+
+(patient 0)
