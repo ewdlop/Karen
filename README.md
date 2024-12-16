@@ -26,3 +26,5 @@ helping other patient
 they love to talk about other 24h
 
 (patient 0)
+
+oh btw i dont know what the hell was wrong with all 3 of us plus you know they want us to shift blame, acting like we going to shift blame
